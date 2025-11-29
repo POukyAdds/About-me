@@ -12,4 +12,4 @@ Some games i play is:
 - Pony Town
 - Minecraft 
 
-For Art, i usually use **Ibis Paint X**, but i liked to try new art apps beside Ibis Paint X ^_^
+For Art, i usually use **Ibis Paint X**, but i liked to try new **art apps** beside Ibis Paint X ^_^
